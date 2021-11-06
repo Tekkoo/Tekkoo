@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Tekkoo
+- 👀 I’m interested in Programming
+- 🌱 I’m currently learning Programming
+- 💞️ I’m looking to collaborate on Programming,video editor,pixel artist,male chad 
+- 📫 How to reach me Cornelusul#9226
